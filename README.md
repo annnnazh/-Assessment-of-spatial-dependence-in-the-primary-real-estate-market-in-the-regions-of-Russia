@@ -1,0 +1,1 @@
+# -Assessment-of-spatial-dependence-in-the-primary-real-estate-market-in-the-regions-of-Russia
